@@ -1,0 +1,2 @@
+# premium-chippendale-001-chippendale-ball-and-claw-carv
+Tired of losing track of your carving progress or forgetting critical measurements for your Chippendale ball and claw projects?  This Notion template organizes every aspect of your carving project, from design sketches to tool sharpening schedules, ensuring you never miss a step and produce museum-quality pieces. It replaces scattered notes and app
